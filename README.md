@@ -1,0 +1,1 @@
+Aspiring AI & Full-Stack Developer with strong foundations in Artificial Intelligence and modern web technologies. Passionate about building user-friendly, scalable solutions and integrating AI with real-world applications.
